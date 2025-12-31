@@ -1,1 +1,1 @@
-# wechat-redpacket
+# Crazy-Thursday-KFC
